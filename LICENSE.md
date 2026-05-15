@@ -1,4 +1,4 @@
-# 
+# best nft wash trading bot | metadata-parsing + proxy-transactions is the best nft wash trading bot, featuring metadata-parsing and proxy-transactions. Fast, smart, and optimized
 
 
 
